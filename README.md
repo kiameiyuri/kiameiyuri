@@ -4,7 +4,7 @@
   <br><img src="https://cdn.discordapp.com/attachments/431499091269124117/1144074676360986635/music_notes.gif">
 <br><strong>whisper me to interact,</strong> im very friendly! ^o^ </a>
 <br><strong>strawpage looks bad on operagx im so sorry</strong> </a>
-<br><strong>interests; </strong> hi3 & idv are my main interests atm! </a>
+<br><strong>interests; </strong> hi3 & gi are my main interests atm! </a>
 
 <p align="center"><br><strong>dni; </strong> minors please try to limit interaction, 
   <br>emmaemi shippers! sorry she is like a mother to me :3 </a>
