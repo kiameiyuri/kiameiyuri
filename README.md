@@ -7,5 +7,5 @@
 <br><strong>interests; </strong> hi3, dsmp, mlp & more </a>
 
 <p align="center"><br><strong>dni; </strong> minors please try to limit interaction, 
-   <br>other than that, i hide freely. ^_^ 
+   <br> wilbur soot & dteam supporters dont interact, other than that, i hide freely. ^_^ 
    <strong>whisper to interact</strong></a>
